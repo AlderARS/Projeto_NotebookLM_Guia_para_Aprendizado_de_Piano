@@ -39,9 +39,13 @@ https://www.youtube.com/playlist?list=PLhT23TSR07kwCZuf4eBxk2eAORnlNliY
 
 https://notebooklm.google.com/notebook/5ea871af-ee6f-4fe2-8d55-ed4dca9f5342
 
-### 4. Curso Completo de Piano Desde Cero
+### 4. Curso Básico de Música - Curso de Teclado
 
 https://www.churchofjesuschrist.org/bc/content/shared/english/pdf/callings/music/keyboard-course/Tecla_CursoDeTeclado_por.pdf
+
+### 5. Curso Completo de Piano Desde Cero (ESP)
+
+https://www.youtube.com/playlist?list=PL92TYERZtnkSqZpcT8xlygi_FfpnecThS
 
 ---
 
